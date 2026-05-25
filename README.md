@@ -14,3 +14,5 @@ The aim is to understand how to request help from AI tools for tasks like writin
 
 
 Result: 
+[Swathi A N Exp 6 PE (1).pdf](https://github.com/user-attachments/files/28226965/Swathi.A.N.Exp.6.PE.1.pdf)
+
